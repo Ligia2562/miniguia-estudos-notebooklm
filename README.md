@@ -16,10 +16,10 @@ https://www.ebsco.com/research-starters/history/c-s-lewis
 
 Prompt: Resuma a vida de C.S. Lewis e suas tragédias e com base nas fontes, analise como a amizade com J.R.R. Tolkien alterou a percepção de Lewis sobre a relação entre 'mito' e 'verdade' sob uma perspectiva linguística.
 
-https://notebooklm.google.com/notebook/db15c0d0-7307-4411-8479-acee6a29182e
-
 Miniguia de Estudo 
 Resumos Estruturados:
 A Fase do Ateísmo Relutante: O impacto da guerra e a busca pela lógica pura e por sentido.
 O Encontro com a Alegria (casamento): Como a experiência emocional e o romance tardio influenciaram suas últimas obras (ex: A Anatomia de uma Dor) e
 A Razão e a Beleza: A síntese final de Lewis, onde o argumento lógico não exclui a beleza estética.
+
+https://notebooklm.google.com/notebook/db15c0d0-7307-4411-8479-acee6a29182e
