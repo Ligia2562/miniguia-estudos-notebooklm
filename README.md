@@ -17,7 +17,7 @@ https://www.ebsco.com/research-starters/history/c-s-lewis
 Prompt: Resuma a vida de C.S. Lewis e suas tragédias e com base nas fontes, analise como a amizade com J.R.R. Tolkien alterou a percepção de Lewis sobre a relação entre 'mito' e 'verdade' sob uma perspectiva linguística.
 
 Miniguia de Estudo 
-Resumos Estruturados:
+Resumos Estruturados:fghjklç
 
 bnm,.;
 A Fase do Ateísmo Relutante: O impacto da guerra e a busca pela lógica pura e por sentido.
