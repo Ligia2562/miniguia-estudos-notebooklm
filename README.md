@@ -18,6 +18,8 @@ Prompt: Resuma a vida de C.S. Lewis e suas tragédias e com base nas fontes, ana
 
 Miniguia de Estudo 
 Resumos Estruturados:
+
+bnm,.;
 A Fase do Ateísmo Relutante: O impacto da guerra e a busca pela lógica pura e por sentido.
 O Encontro com a Alegria (casamento): Como a experiência emocional e o romance tardio influenciaram suas últimas obras (ex: A Anatomia de uma Dor) e
 A Razão e a Beleza: A síntese final de Lewis, onde o argumento lógico não exclui a beleza estética.
